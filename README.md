@@ -1,6 +1,6 @@
 🎨 SHREYA'S ART STUDIO 
 
-Welcome to SHREYA'S ART STUDIO, an online art portfolio showcasing my creativity and passion for drawing and painting.
+Welcome to SHREYA'S ART STUDIO, an online art  showcasing my creativity and passion for drawing and painting.
 
 ✨ Features
 
